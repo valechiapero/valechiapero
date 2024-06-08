@@ -1,4 +1,5 @@
-# ***¡Hola, soy Valentina Chiapero!*** ⭐️
+# ***¡Buenas a todos!*** :dizzy:
+
 
 # *Sobre mí*
 
